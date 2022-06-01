@@ -1,3 +1,4 @@
-# What was I thinking when I bought all these domains and made this
+# A picture of a lewd shark.
+(kill me)
 ## https://lewd-shark.monster
 <a href="https://lewd-shark.monster"><p align="center"><img src="./lewdshark.png"></p></a>
